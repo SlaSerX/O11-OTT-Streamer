@@ -1,4 +1,3 @@
 # O11-OTT-Streamer
-O11 OTT Streamer Free for everyone 
+O11 OTT v2 Streamer Patched Free for everyone 
 
-o11 Patched v2 free for everyone 
